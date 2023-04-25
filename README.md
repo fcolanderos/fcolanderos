@@ -36,7 +36,7 @@ Grasshopper is a great tool to start learning the basics of computational thinki
 
 [@fco.landeros](https://www.instagram.com/fco.landeros/ "Instagram")
 
-<flanderos@ltu.edu>
+<fco.landerosjr@gmail.com>
     
 
 
